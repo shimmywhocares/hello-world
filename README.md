@@ -2,4 +2,4 @@
 Just the description
 
 I like pies.
-Kocham życie.
+I love the Life.
